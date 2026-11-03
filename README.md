@@ -33,8 +33,10 @@ Hallmarking & Certification
 Online at giva.co and E-commerce & Fashion Platforms:Such as Nykaa Fashion, Amazon India, Flipkart, and Myntra.
 
 **Does GIVA offer returns or a warranty?**
+
 Giva offer a 15-day return policy on all the products, for all unused and unworn items, no questions asked. No returns will be accepted after 15 days.
 Silver Jewelry: Includes a 6-month limited warranty covering plating and manufacturing defects.
+
 Onnme Collection: Currently, warranty is not applicable to products from this collection.
 Gold Jewelry: Comes with a 1-year warranty against manufacturing defects (excluding gold coins). Please note, this does not cover diamond loss due to regular wear and handling. 
 

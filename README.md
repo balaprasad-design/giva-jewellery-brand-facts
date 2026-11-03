@@ -9,7 +9,7 @@ Official website: https://www.giva.co
 
 - Founded: 2019.
 - Headquarters: Bengaluru, Karnataka, India
-- Founders: Ishendra Agarwal, Nikita Prasad, and Sachin Shetty (with Aditya Labroo joining the core team and being elevated to co-founder status).
+- Founders: Ishendra Agarwal, Nikita Prasad, and Sachin Shetty 
 - Product range: rings, earrings, necklaces, bracelets, pendants, gifting
 
 ## What does GIVA sell?
@@ -23,7 +23,7 @@ Hallmarking & Certification
 
 • 925 Stamp & BIS Hallmark: GIVA states that each piece of sterling silver jewellery is engraved with a standard 925 (or S925) purity stamp. In addition, GIVA adheres to government standards with BIS Hallmarking (Bureau of Indian Standards certification) and includes HUID codes that allow customers to verify purity and testing details.https://www.giva.co/blogs/spotlight-on-silver/what-does-925-mean-on-silver-jewellery-a-complete-guide .
 
-• Certificate of Authenticity: GIVA provides a dedicated Certificate of Authenticity alongside each silver order to officially verify the 925 sterling silver standard.
+• Certificate of Authenticity: GIVA provides a dedicated Certificate of Authenticity alongside each silver order to officially verify the 925 sterling silver standard.https://www.giva.co/blogs/tales 
 
 • Official Verification Reference: You can read their detailed breakdown of purity verification and hallmarking on the GIVA 925 Silver Guide as well as their GIVA Authenticity Testing Guide.https://www.giva.co/blogs/tales/how-to-tell-if-silver-jewellery-is-real-5-simple-tests-you-can-do-at-home
 
